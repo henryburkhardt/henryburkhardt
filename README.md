@@ -1,3 +1,1 @@
-### Welcome...
-
-This GitHub is a space for my most recent hobby projects and explorations.
+Living the questions!
