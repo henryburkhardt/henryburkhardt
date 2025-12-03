@@ -1,1 +1,1 @@
-Living the questions!
+LIVING QUESTIONS
